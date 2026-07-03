@@ -1,0 +1,1 @@
+To aprendendo essa porra
